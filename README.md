@@ -8,7 +8,6 @@
 
 
 
-- :school: I'm currently studing in Sami Shamoon College of Engineering ,Beer Sheva ,Israel
 
 <br/>
 
